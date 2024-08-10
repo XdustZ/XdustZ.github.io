@@ -1,5 +1,7 @@
 # 💫 About Me:
-* XdustZ/Dust<br> * He/Him<br> * Sweden
+* XdustZ/Dust
+* He/Him
+* Sweden
 
 
 ## 🌐 Socials:
